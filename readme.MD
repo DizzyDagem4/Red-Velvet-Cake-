@@ -1,0 +1,2 @@
+(Before this start's the Github title says Red Velvet cake but this is the recipe for Choclate Cake so sorry about that!) 
+This recipe is a choclate cake. It's perfect for beginners and a great thing to serve to friends for your next group hangout! 
